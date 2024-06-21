@@ -29,5 +29,5 @@
 - **HOSTINGER** et **LWS** sont facturés à la commande, **OVH** c'est prélèvement mensuel.
 
 
-# Ultime bafouille : **G MAL O CRANE**
+# Ultime bafouille : **G MAL O CRANE JPP**
 
